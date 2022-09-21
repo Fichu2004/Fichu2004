@@ -1,5 +1,9 @@
-### Siema🤙🏻🥦
-    Smacznej Kawusi☕☕
+### Siema🤙🏻🥦 Smacznej Kawusi☕☕
+- 📫 How to reach me: gmail
+- ⚡ Fun fact: olufowanie musi byc 
+- 👯 I’m looking to collaborate with bigg moneeyyy
+
+              
 
 
 <!--
