@@ -1,8 +1,8 @@
 ### Siema🤙🏻🥦 Smacznej Kawusi☕☕
 - 📫 How to reach me: Gmail
 - ⚡ Fun fact: olufowanie musi byc 
-- 👯 I’m looking to collaborate with bigg moneeyyy
-
+- 👯 I’m looking to collaborate with big money
+- 🌱 I’m currently learning html and css
               
 
 
