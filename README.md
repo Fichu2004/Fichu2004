@@ -1,5 +1,5 @@
 ### Siema🤙🏻🥦 Smacznej Kawusi☕☕
-- 📫 How to reach me: gmail
+- 📫 How to reach me: Telegram
 - ⚡ Fun fact: olufowanie musi byc 
 - 👯 I’m looking to collaborate with bigg moneeyyy
 
